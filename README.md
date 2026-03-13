@@ -28,6 +28,7 @@ Unlike your real skin, which regenerates easily, coping mechanisms cannot be "re
 A clear example of this is the case study of Chuck McGill from Better Call Saul. Though the character is fictional, he helps us understand the concept. When Chuck McGill realizes that his brother whom he considered incapable manages to get a law degree, Chuck is forced to see him as a peer. His brain couldn't take it. One of his vital coping mechanisms was the belief that the law is only for "good" people. Because Jimmy clearly didn't fit that mold and yet became a lawyer, Chuck’s ego was exposed. He developed electromagnetic sensitivity, which was simply an alternative reality his brain created when it was exposed to its raw self.
 
 CIRCLING BACK TO JOHN
+
 As we have now established the fact that the more time he spends alone, the more exposed he is, his brain starts to look for alternatives:
 
 1. Do drugs or develop a similar addiction to numb himself.
@@ -83,6 +84,7 @@ Since John sees someone "out of his league" putting in double the effort, he pus
 Who is to blame here? John or Beth? The answer is no one. In the mechanism of the raw self, the damage is rarely linear.
 
 THE FAMILY INHERITANCE: CASE IV
+
 This section discusses what builds the raw self and the role parental influence plays. We will explore what makes Beth avoid her raw self, but to understand her upbringing, let’s look at someone more famous and "deadly": Dexter Morgan.
 
 What makes Dexter a serial killer? Was it Harry’s upbringing? The answer is a certain yes. But then, why did Brian Moser (Dexter's brother) become one too, without Harry’s manipulation? It’s not about what they could become; it’s about what could’ve been prevented. Harry was a great cop, but he saw "bad" people escape the law. His raw self couldn’t handle the fact that bad people got away.
@@ -97,6 +99,7 @@ Now, back to Beth. Many people from Asia experience "tough parenting," which has
 In both cases Beth and Dexter the effect is a cry for help. Beth searches for what she lacked by dating too many people, trying to make a point but getting caught in a parasitic loop. Dexter, despite being a seasoned killer, hides his blood slides in an air conditioner. Why? Because subconsciously, he knows the "layer" is too much for him. He wants out.
 
 CASE V: THE MAGNETISM 
+
 This section is intended to categorize the examples we used earlier specifically the dynamic between Beth and John discussed previously. By revisiting them here, we can understand the fundamental "Why" behind their attraction without being repetitive. We are looking at why specific raw selves gravitate toward each other.
 
 Since we covered Dexter recently, he is the best person to help us understand this mechanic. Dexter’s famous line when he meets his partner is: “She’s perfect. She’s as damaged as I am, in her own way.”
