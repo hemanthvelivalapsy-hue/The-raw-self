@@ -7,9 +7,7 @@ HEMANTH VELIVALA
 
 INTRODUCTION
 
-This book consists of independent theories primarily rooted in metacognition and developed through meticulous introspection of real-life events. To maintain the purity and internal consistency of the ideas explored here, I have intentionally avoided grounding this work in established psychological or philosophical schools of thought. These conclusions are the product of independent logic; any resemblance to external theories is unintentional and purely coincidental.
-
-By the end of the book, you should have a clear understanding of the “raw self” and how your brain tricks you into avoiding it.
+I’ve never read a psychology book in my life. But I’ve spent a lot of time watching people, watching myself, and wondering why we’re all so weirdly obsessed with running away from who we really are. Here’s how I think it works.
 
 UNDERSTANDING THE "RAW SELF"
 
