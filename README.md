@@ -127,4 +127,4 @@ A very normal response would be a phenomenon of what they call PTG (Post-Traumat
 
 My opinion is that being human, and not at our raw state, means we easily externalize and run away from the blame. As humans, we have to stand up against fake agendas. Dopamine can be achieved in many other ways, such as helping others or genuinely focusing on yourself. The easier ways or shortcuts often lead to damaging others and ourselves subconsciously more than we realize.
 Share your thoughts at: hemanthvelivalapsy@gmail.com
-Found this on sub stacks
+
